@@ -1,1 +1,1 @@
-# Optimizr-Marketing-Campaign
+# Optimize-Marketing-Campaign
